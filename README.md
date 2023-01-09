@@ -1,1 +1,9 @@
-# Foro-EDO
+![FORO 2 (1)_1](https://user-images.githubusercontent.com/116705680/211229687-f0d35ee5-8ffb-4fd1-a682-6db62bc64d81.jpg)
+![FORO 2 (1)_2](https://user-images.githubusercontent.com/116705680/211229690-f3faf112-f853-4788-abaf-0bc3b3c4f297.jpg)
+![Foro para el github_3](https://user-images.githubusercontent.com/116705680/211229899-3816f1ca-c257-41e9-bf26-329f3b029257.jpg)
+![FORO 2 (1)_4](https://user-images.githubusercontent.com/116705680/211229698-0779cac2-1c27-41cd-a2b3-5f8b9c99528d.jpg)
+![FORO 2 (1)_5](https://user-images.githubusercontent.com/116705680/211229699-f3cd2e75-0bcf-43ab-b9e3-9a37e0d8dd7d.jpg)
+![FORO 2 (1)_6](https://user-images.githubusercontent.com/116705680/211229702-d84b339a-ebac-4b87-8859-dda435280c0e.jpg)
+![FORO 2 (1)_7](https://user-images.githubusercontent.com/116705680/211229705-5d345169-1acf-4ae3-a585-57c8c36f9ca9.jpg)
+![FORO 2 (1)_8](https://user-images.githubusercontent.com/116705680/211229707-ca606248-62f0-4bd9-85d5-ab5b540e69dd.jpg)
+![FORO 2 (1)_9](https://user-images.githubusercontent.com/116705680/211229711-d7c85241-dc53-4700-947b-29d67faa22e2.jpg)
